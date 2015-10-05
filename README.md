@@ -1,2 +1,2 @@
-# git-started
-First challenge for the INFO343 course
+###BIRD GOD###
+Clearly the best god type ever, due to awesome wings, persistent appearences, and super awesome powers.
